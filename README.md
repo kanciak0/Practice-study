@@ -1,1 +1,1 @@
-# pierdoly
+# Do nauki
